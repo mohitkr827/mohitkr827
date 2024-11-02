@@ -1,7 +1,7 @@
 
-# Hi there, I'm Mohit 👋
+# Foolgobhi / Caulifalower / Code2Good / Mohit 👋
 
-WOLFAGANGGGGGGG
+WOLFGANG
 
 ## 📊 Languages & Technologies
 
